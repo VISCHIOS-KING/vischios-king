@@ -17,9 +17,9 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=44oewrn0vmudhrkngwuf9ldvo&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6f2f54&bar_color_cover=false">
   </a>
 </p>
-
-<p align="center"> <img src="https://dividers.crd.co/assets/images/gallery09/5fc74bfc.gif?v=05d33f91" width="600"/>
-
+ 
+<p align="center">
+ <img src="https://pixelsafari.neocities.org/dividers/blackthornyroses.gif" width="600"/>
 
 
 
