@@ -4,9 +4,14 @@
   
 <p align="center"><strong>"Perhaps I've been caught up in that elation. Perhaps I still am."</p> 
 
+
   
 
 <p align="center"><img src="https://i.pinimg.com/originals/f9/58/ae/f958aec289aaeacd93c71841d852ba1b.gif" width="500"/>
+<p align="center">︵ shiki or.. luka ﾒ
+<p align="center"> 17... ✘ he/she. ― under 14 dni.
+
+
 
 
 
